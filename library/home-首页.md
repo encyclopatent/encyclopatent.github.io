@@ -5,4 +5,4 @@
 
 
 ### 欢迎光临专利百科Encyclopatent!
-—— **Encyclopatent 专利资源一站式服务！**  
+—— **Encyclopatent 专利资源的个人收集和整理，仅供学习参考！**  
